@@ -33,4 +33,4 @@ TokyoMotion：类似于YouTube的社群平台，部分用户上传视频可免�
 四、法律与观看建议
 在访问成人内容时，请确保已满18岁，并遵守所在国家和地区的法律法规。不要下载或传播未经授权的视频内容，尊重知识产权和演职人员权益。同时建议使用广告拦截工具和VPN保护个人信息安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/34666 ）</span>
